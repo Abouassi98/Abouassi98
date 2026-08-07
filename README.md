@@ -4,7 +4,7 @@
 
 Nearly 6 years building security-critical mobile platforms, payment SDKs and cross-platform apps, including nearly three years in fintech and payments.
 
-Based in Riyadh — iqama transferable, degree attested, Saudi Council of Engineers membership active.
+Based in Riyadh, Saudi Arabia. Available immediately.
 
 ## What I Build
 
